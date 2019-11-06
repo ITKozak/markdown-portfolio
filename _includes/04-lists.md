@@ -1,1 +1,7 @@
-Replace this with a list of your favorite things.
+Stuff I love:
+- IT stuff
+- PC stuff
+- My family
+- My wife
+- My keeb
+- Myself
